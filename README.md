@@ -4,5 +4,5 @@
 - 📫 email: moose.2000@mail.ru or tg: @artem7bolt
       
 My professional activity:      
-![image](https://user-images.githubusercontent.com/72558042/168480852-8eb4507d-782f-44e6-9253-f9baebb98965.png)
+![image](https://user-images.githubusercontent.com/72558042/184928767-f72a31bf-213c-46dc-bcc2-0ebf24af0626.png)
 
